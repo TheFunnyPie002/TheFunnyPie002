@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on making addons for minecraft bedrock, cince im making minecraft java mods only and want to make an addon for bedrock too but idk how
 - 📫 How to reach me "adham.the.destroyer2003@gmail.com", pls dont hack or spam ping
 - 😄 Pronouns: he/him/pie/02/dead💀
-- ⚡ Fun fact: i love you Doha & Mariam!
+- ⚡ Fun fact: i love you Doha & Mariam & Logy!
 
 <!---
 TheFunnyPie002/TheFunnyPie002 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
